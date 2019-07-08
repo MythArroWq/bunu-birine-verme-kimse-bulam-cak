@@ -1,1 +1,0 @@
-# chyper-bot-hepsi
